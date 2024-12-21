@@ -1,0 +1,1 @@
+# informatika-2bsb-1variant-Paxriddinov-Dilshod
